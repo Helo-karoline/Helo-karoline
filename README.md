@@ -8,4 +8,6 @@ Estou estudando no Alura
 
 ### Você entra em contato comigo 💖
 
-00011032
+0001103280594SP@al.educacao.sp.gov.br
+
+![](https://media1.tenor.com/m/kU9efD-vWE0AAAAC/enyell-enyell-burro.gif)
